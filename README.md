@@ -64,6 +64,4 @@ Feel free to reach out for collaboration, academic discussions, or just to conne
 📧 drkoepsell@tamu.edu  
 📍 College Station, TX, USA
 
----
 
-Let me know if you'd like to add or refine any sections!
